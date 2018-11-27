@@ -1,0 +1,2 @@
+# wksp72nt
+mining
